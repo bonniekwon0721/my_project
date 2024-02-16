@@ -1,3 +1,7 @@
+<img width="940" alt="스크린샷 2024-02-16 오전 9 46 05" src="https://github.com/bonniekwon0721/my_project/assets/158483887/0a6526de-a74f-4197-ade4-1a9ad97a749e">
+
+
+
 # BONNIE PROJECT
 ## BONNIE PROJECT
 ### BONNIE PROJECT
